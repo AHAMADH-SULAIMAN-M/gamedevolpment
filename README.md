@@ -53,7 +53,8 @@
 ## OUTPUT:
 
 
-![WhatsApp Image 2025-05-11 at 22 40 06_72ccf108](https://github.com/user-attachments/assets/ec3bb5bc-ae1b-45f2-b207-d8c53f1c27d7)
+![pureglow](https://github.com/user-attachments/assets/a62992b3-7930-47a4-a50a-06b672f67396)
+
 
 
 ## RESULT:
